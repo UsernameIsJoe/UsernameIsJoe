@@ -6,6 +6,8 @@ I am a computation designer focusing on architecture, urban design, and machine 
 
 Born and raised in Taiwan, go to school in Boston, currently taking a gap year living in Amsterdam. 
 
+Here I store prototypes of my studies and researches,
+
 Feel free to hmu with any questioins, or your coolest idea and let's make it real ;)
 
 
